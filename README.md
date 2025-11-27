@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **I enjoy any game with breakthrough mechanics.**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
