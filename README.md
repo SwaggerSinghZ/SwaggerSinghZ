@@ -3,7 +3,6 @@
 
 - 📫 How to reach me **swaggersinghc@gmail,com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1juuNIVzrX3heiT8GM-k-X5cacgjsjt4N/view?usp=drive_link](https://drive.google.com/file/d/1juuNIVzrX3heiT8GM-k-X5cacgjsjt4N/view?usp=drive_link)
 
 - ⚡ Fun fact **I enjoy any game with breakthrough mechanics.**
 
